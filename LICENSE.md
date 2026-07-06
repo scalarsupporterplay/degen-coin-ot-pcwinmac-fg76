@@ -1,4 +1,4 @@
-# 
+# VIP degen coin sniper bot امتدادات لـ Mac OS | توربو degen coin sniper bot امتدادات لـ PC Windows. مع معالجة الإلغاء و تحويل التنسيقات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
